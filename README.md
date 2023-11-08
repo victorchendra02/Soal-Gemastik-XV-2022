@@ -1,1 +1,1 @@
-## Soal-Gemastik-XV-2022
+# Soal Gemastik XV Tahun 2022
